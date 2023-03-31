@@ -9,7 +9,7 @@ Holaa soy Cande, no tengo ningún apodo asi que solo cande :)
 
 :round_pushpin: Podria vivir a milanesas de carne, nuggets de pollo y sandia, no me escondo
 
-:round_pushpin: Me considero una persona con variedad en gusto musical
+:round_pushpin: Me considero una persona con variedad en el tipo de música que escucho
 
 :round_pushpin: Amo mi cumpleaños
 
